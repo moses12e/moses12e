@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @moses12e
+- 👀 I’m interested in political topics, coffee, walks and mobile app development :)
+- 🌱 I’m currently learning android development
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me: mohamamdmoussaa@gmail.com
